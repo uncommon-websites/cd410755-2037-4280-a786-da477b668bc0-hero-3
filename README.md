@@ -1,0 +1,2 @@
+# cd410755-2037-4280-a786-da477b668bc0-hero-3
+Hero section variant 3 for cd410755-2037-4280-a786-da477b668bc0
